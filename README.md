@@ -32,5 +32,3 @@
 ---
 
 [![](https://visitcount.itsvg.in/api?id=toqaAbdeen&label=Profile%20Views&color=9&icon=0&pretty=false)](https://visitcount.itsvg.in)  
-
-✨ **Proudly created with GPRM ( https://gprm.itsvg.in )** ✨
